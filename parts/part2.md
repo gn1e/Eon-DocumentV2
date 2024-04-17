@@ -20,4 +20,8 @@ https://github.com/Twin1dev/Eon-Document/assets/64933300/05242dc9-f031-4911-ab3f
 # Rio adding a rat to an OLD project (Revive)
 ![GKdAyExWMAAdN7D](https://github.com/Twin1dev/Eon-Document/assets/64933300/c8fe625a-4a9a-4960-999e-4696a7ffef1c)
 
+# Rio making fun of a person that is speaking a different language.
+![image](https://github.com/Twin1dev/Eon-Document/assets/64933300/d553192d-15b2-41c9-9d3d-123b5e09deaa)
+
+
 ill add more i reset pc but i have the other shit somewhere
