@@ -7,5 +7,7 @@ if you want to add to this just dm me on cord or create a pull req :)
 - Part 2 / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/part2.md) (Ratting, Stealing Nitro, Doxxing)
 - Part 3 / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/part3.md) (Stealing Peoples Work For Profit)
 
+Funny/Stupid stuff / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/funny.md)
+
 ## credits
 - vexx for most of part 2
