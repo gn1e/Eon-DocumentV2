@@ -11,3 +11,4 @@ Funny/Stupid stuff / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main
 
 ## credits
 - vexx for most of part 2
+- sxndyyz for basically half the screenshots
