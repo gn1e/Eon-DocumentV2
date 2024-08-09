@@ -16,4 +16,4 @@ Funny/Stupid stuff / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main
 - sxndyyz for basically half the screenshots
 - ryan for all of the add ons aka they got leaked
 - eon mods for helping
-- twin1 for most of the stuff 
+- twin1 for part 1 to 3 and funny stuff
