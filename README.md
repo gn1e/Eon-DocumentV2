@@ -3,13 +3,13 @@
 if you want to add to this just dm me on discord: _coldfn_
 
 ## Parts
-- Part 1 / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/part1.md) (Botting Members)
-- Part 2 / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/part2.md) (Ratting, Stealing Nitro, Doxxing)
-- Part 3 / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/part3.md) (Stealing Peoples Work For Profit)
+- Part 1 / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/part1.md) (Botting Members)
+- Part 2 / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/part2.md) (Ratting, Stealing Nitro, Doxxing)
+- Part 3 / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/part3.md) (Stealing Peoples Work For Profit)
 - part 4 / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/part4.md) (Scamming People)
 - part 5 / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/part5.md) (making someone do stuff blackmail)
 
-Funny/Stupid stuff / [(File)](https://github.com/Twin1dev/Eon-Document/blob/main/parts/funny.md)
+Funny/Stupid stuff / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/main/parts/funny.md)
 
 ## credits
 - vexx for most of part 2
