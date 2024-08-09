@@ -2,8 +2,6 @@
 
 # To staff making Ryan to do stuff or he will receive a timeout.
 ![howden555](https://github.com/user-attachments/assets/e10966a0-da66-4d04-b8f2-66879467d781)
-
-# Eon mod hidden
 ![hidden](https://github.com/user-attachments/assets/8269b388-1c9c-4bba-969a-de65467fc3d5)
 
 # rio/plague harassing ryan
