@@ -5,6 +5,3 @@
 
 # Eon mod hidden
 ![hidden](https://github.com/user-attachments/assets/8269b388-1c9c-4bba-969a-de65467fc3d5)
-
-# to Rio/Harvery the same person harassing ryan in a priv vc
-https://files.fm/u/jk6uwe9akm
