@@ -1,4 +1,4 @@
-# Rio and his "Blackmaling"
+# Rio and his "Blackmailing"
 
 Rio dmd me saying my anticheat is ass, i said "i know" since it was bad at the time, Then he said "Send me the ac, i wonder how ass it is" I refused and said "nah im good". After that he said "so should i expose this",
 Mainly blackmailing me for exposing something that i skidded his backend back in early 2023, just because i wouldnt send him the anticheat source, His Previous projects "Exit, Revive, etc.." We're all Momentum & Reboot skids so he has 0 rights to call me a skid. knowing all his projects are skidded im 100% positive he was also just gonna skid my anticheat if i sent it to him because he's SUCH a "good" coder ofc.
