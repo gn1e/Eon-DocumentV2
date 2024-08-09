@@ -22,3 +22,4 @@ Funny/Stupid stuff / [(File)](https://github.com/leaks995/Eon-DocumentV2/blob/ma
 - part 4 - nade
 - part 5 - ryan
 - part 6 - aqua
+- privateusers part: PrivateUser
