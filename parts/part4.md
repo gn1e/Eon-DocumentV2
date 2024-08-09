@@ -2,4 +2,4 @@
 
 # Banning customers for no reason!
 
-https://i.ibb.co/g3yn6yj/eonshit.png
+![my friends giving vouch :D](/assets/eonshit.png)
