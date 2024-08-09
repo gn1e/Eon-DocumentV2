@@ -1,6 +1,6 @@
-# Part 4. The blackmail!
+# Part 5. The blackmail!
 
-# To staff making ryan do stuff or he will get timedout for a week reece/howden55
+# To staff making Ryan to do stuff or he will receive a timeout.
 ![howden555](https://github.com/user-attachments/assets/e10966a0-da66-4d04-b8f2-66879467d781)
 
 # Eon mod hidden
