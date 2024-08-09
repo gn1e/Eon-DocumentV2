@@ -10,8 +10,9 @@ Mainly blackmailing me for exposing something that i skidded his backend back in
 In the 2nd image you can see where he said i was a skid while he legit had 3projects where in all of them he used Reboot & Momentum. 
 
 here are some more images where rio is basically telling people he banned for no reason to do stupid shit to get unbanned.
-https://images-ext-1.discordapp.net/external/9moFTft1HgbV924LQgBp0N0b7jGSyGNSR8M5ZyMbZ2s/https/github.com/user-attachments/assets/fb8d0fab-1b38-4365-9fb9-9a40a03aea1e?format=webp
+![fb8d0fab-1b38-4365-9fb9-9a40a03aea1e](https://github.com/user-attachments/assets/1e9d7c7e-c407-4cf8-9481-a4d86a5ffe95)
+
 
 Here he banned Nade because he was playing a game Rio didnt like, then rio said nade racist because again he didnt like the game nade was playing.
-https://images-ext-1.discordapp.net/external/Rvo7S-6dVDdrBkoc8Xa1Qj-jW_SvA4OIv2hGOODqLb0/https/github.com/user-attachments/assets/3fb21f1b-1985-4f5f-a9f2-888225307cca?format=webp
+![3fb21f1b-1985-4f5f-a9f2-888225307cca (1)](https://github.com/user-attachments/assets/301af6a2-dde5-4f75-9c3c-85803f4ae4d0)
 
