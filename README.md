@@ -1,4 +1,4 @@
-# Eon-Document
+# Eon-DocumentV2
 
 if you want to add to this just dm me on discord: _coldfn_
 
