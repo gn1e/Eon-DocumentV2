@@ -2,4 +2,4 @@
 
 # Banning customers for no reason!
 
-![my friends giving vouch :D](/assets/eonshit.png)
+![my friends giving vouch :D](/parts/assets/eonshit.png)
