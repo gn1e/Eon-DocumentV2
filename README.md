@@ -8,7 +8,7 @@ if you want to add to this just dm me on discord: _coldfn_
 - Part 3 / [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/part3.md) (Stealing Peoples Work For Profit)
 - Part 4 / [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/part4.md) (Scamming People)
 - Part 5 / [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/part5.md) (making someone do stuff blackmail)
-- Part 6 / [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/part5.md) (the racist of eon)
+- Part 6 / [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/part5.md) (the racist staff of eon)
 
 PrivateUser's Part: [(File)](https://github.com/gn1e/Eon-DocumentV2/blob/main/parts/privateuserspart.md)
 
